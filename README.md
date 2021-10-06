@@ -11,4 +11,5 @@ Simultaneously, across the world, everyone hears a voice in their head.
   This helped calm everyone down, as these words were words of power. Was Joe behind this is the question? Probably.
   Find out next time when we come back. Now a word from our sponsor, Raid Shadow Legends.
   
+  Come join the largest Clan In all of the league 
   
