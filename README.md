@@ -13,3 +13,10 @@ Simultaneously, across the world, everyone hears a voice in their head.
   
   "Thank you Humans for competing in this weeks brawl. The winnner has received a grand total of 10 million dollars. we would like to thank all of our soldout crowd of 50,000 for watching a group of poverished people off the streats fight for a chance to change their lifes. we are planning on having one more game before the server shuts down. with the biggest reward of a 1,000,000 dollars the winner will be able to live what little life they have remaining lavishly. now who would like to risk their life in a fight to the death battle sign up online!!"  
   
+
+  What a great word from our sponsors Phil, now back to the breaking news.
+  As the voice began to join in on the chanting, Mark Zuckerberg fell from the sky.
+  Pleasing the crowd with ads off facebook for the next two hours. How does that sound peasants?
+  Only to be interrupted by the voice yelling in distress. "THIS IS NOT A FREE COUNTRY! You must pay for everything here."
+  Immediately money starts raining from the sky.
+=======
