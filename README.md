@@ -12,4 +12,7 @@ Simultaneously, across the world, everyone hears a voice in their head.
   Find out next time when we come back. Now a word from our sponsor, Raid Shadow Legends.
   
   What a great word from our sponsors Phil, now back to the breaking news.
-  
+  As the voice began to join in on the chanting, Mark Zuckerberg fell from the sky.
+  Pleasing the crowd with ads off facebook for the next two hours. How does that sound peasants?
+  Only to be interrupted by the voice yelling in distress. "THIS IS NOT A FREE COUNTRY! You must pay for everything here."
+  Immediately money starts raining from the sky.
