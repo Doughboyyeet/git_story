@@ -12,11 +12,12 @@ Simultaneously, across the world, everyone hears a voice in their head.
   Find out next time when we come back. Now a word from our sponsor, Raid Shadow Legends.
   
   "Thank you Humans for competing in this weeks brawl. The winnner has received a grand total of 10 million dollars. we would like to thank all of our soldout crowd of 50,000 for watching a group of poverished people off the streats fight for a chance to change their lifes. we are planning on having one more game before the server shuts down. with the biggest reward of a 1,000,000 dollars the winner will be able to live what little life they have remaining lavishly. now who would like to risk their life in a fight to the death battle sign up online!!"  
-
-
   What a great word from our sponsors Phil, now back to the breaking news.
-  As the voice began to join in on the chanting, Mark Zuckerberg fell from the sky.
-  Pleasing the crowd with ads off facebook for the next two hours. "How does that sound peasants?"
-  Only to be interrupted by the voice yelling in distress. "THIS IS NOT A FREE COUNTRY! You must pay for everything here."
-  Immediately money starts raining from the sky.
-
+As the voice began to join in on the chanting, Mark Zuckerberg fell from the sky.
+Pleasing the crowd with ads off facebook for the next two hours. "How does that sound peasants?"
+Only to be interrupted by the voice yelling in distress. "THIS IS NOT A FREE COUNTRY! You must pay for everything here."
+Immediately money starts raining from the sky.
+  
+A group of private investigators quickly met up in there old office. "DO WE REALLY HAVE LESS THAN 2 HOURS TO LIVE??" one PI yelled in a panic.
+"there must be something we can do?" another PI remarked. The boss tried franticlly to calm the group down but to no prevail. until a dark figure immerged from the corner, "I know who did this. and we can stop this. we do not have to die today!" 
+ 
