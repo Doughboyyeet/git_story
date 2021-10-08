@@ -19,4 +19,3 @@ Simultaneously, across the world, everyone hears a voice in their head.
   Pleasing the crowd with ads off facebook for the next two hours. How does that sound peasants?
   Only to be interrupted by the voice yelling in distress. "THIS IS NOT A FREE COUNTRY! You must pay for everything here."
   Immediately money starts raining from the sky.
-=======
