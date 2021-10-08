@@ -18,6 +18,8 @@ As the voice began to join in on the chanting, Mark Zuckerberg fell from the sky
 Pleasing the crowd with ads off facebook for the next two hours. "How does that sound peasants?"
 Only to be interrupted by the voice yelling in distress. "THIS IS NOT A FREE COUNTRY! You must pay for everything here."
 Immediately money starts raining from the sky.
+
+Joe Biden laughs as he rains down his Biden bucks worth pennis, sjnce his economy was so bad. Joe finally revealed himself, and old decrepit man who could barely make sense of the world anymore. Who knows what is going to happen. Biden started yelling about how poor kids arr just as talented as white kids, and all the liberals agreed. These are racist people. That's what all the non brainwashed people thought. What were we going to do?
   
 A group of private investigators quickly met up in there old office. "DO WE REALLY HAVE LESS THAN 2 HOURS TO LIVE??" one PI yelled in a panic.
 "there must be something we can do?" another PI remarked. The boss tried franticlly to calm the group down but to no prevail. until a dark figure immerged from the corner, "I know who did this. and we can stop this. we do not have to die today!" 
